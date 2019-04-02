@@ -1,2 +1,4 @@
-# scottbergerhabitat.github.io
-Scott Berger Landscape &amp; Design
+# Scott Berger Landscape & Design
+
+- [View Work](https://www.instagram.com/scottbergerhabitat/)
+
